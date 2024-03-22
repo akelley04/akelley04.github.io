@@ -1,2 +1,2 @@
-# akelley04.github.io
-# akelley04.github.io
+Sophomore University of Notre Dame
+Computer Science and Constitutional Studies
